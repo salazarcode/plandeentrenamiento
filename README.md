@@ -1,4 +1,4 @@
 # plandeentrenamiento
 
 
-Muere maduro.
+No mueras maduro.
